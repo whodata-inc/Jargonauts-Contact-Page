@@ -1,1 +1,1 @@
-Read me goes here
+app contact information: zislandzak@gmail.com
