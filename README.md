@@ -6,7 +6,7 @@ app contact information: zislandzak@gmail.com
 
 PRIVACY POLICY
 
-Last updated February 12, 2024
+Last updated June 12, 2024
 
 
 
